@@ -188,3 +188,4 @@ Durante a minha carreira, tive a oportunidade de colaborar com profissionais de 
 31. [Rafael Canalli](https://www.linkedin.com/in/rafael-canalli/)
 32. [Fellipe Martins](https://www.linkedin.com/in/fellipe-gonçalves-martins-03671236/)
 33. [Matheus Perestrelo](https://www.linkedin.com/in/matheus-perestrelo/)
+34. [Willber Bossle](https://www.linkedin.com/in/willber-bossle)
